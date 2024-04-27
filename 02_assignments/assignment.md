@@ -36,7 +36,7 @@ You are stuck in a virtual room and can only leave if you figure out the passwor
 ```
 Your answer here...
 
-
+paper ring 10 meets and Lucky the
 
 
 ```
